@@ -6,6 +6,12 @@ Patel Krish Prakashkumar [ku2407u825]
 
 Vipul singh Adhikari [ku2407u735]
 
+nitya patel [ku2407u724] 
+
+patel  Henil [ku2407u800]
+
+pritika Pangotra [ku2407u741]
+
 
 **OBJECTIUE OF THE PROJECT :**
 
